@@ -1,2 +1,0 @@
-# bhimaraokulkarni
-portfolio
